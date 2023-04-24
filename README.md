@@ -1,5 +1,6 @@
 <div>
 <div><font size="5"><i><br /></i></font></div>
+<div><font size="5"><i>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;&nbsp;</i></font><img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQc1P_UReisrzw1EIMsKouniMPm8neCyyehjRzYJsdbVjC-99UkarajYtiuDJNr9G0v-aU&amp;usqp=CAU" border="0" /></div>
 <div><font size="5"><i>Midelt is a city located in central Morocco, specifically in the region of Dr&acirc;a-Tafilalet. It is situated between the Atlas Mountains to the north and the Sahara Desert to the south, making it an ideal stopover for tourists traveling between these two regions.</i></font></div>
 <div><font size="5"><i><br /></i></font></div>
 <div><font size="5"><i>Midelt is known for its beautiful natural scenery, including the picturesque valleys, gorges, and mountains that surround the city. It is also a hub for agriculture, with many farms producing fruits, vegetables, and olives in the surrounding area. Additionally, Midelt is a center for mining, with several mines located nearby that extract various minerals such as lead, zinc, and copper.</i></font></div>
